@@ -7,6 +7,7 @@ Leicester, England, United Kingdom
 
 3.🤔 I’m looking for help with networking, internships, and improving my business knowledge.
 4.💬 Ask me about international business, leadership, communication, and market trends.
+
 5.📫 How to reach me: [preranakasare350@gmail.com] +44 7553099970
 
 6.😄 Pronouns: She/Her
