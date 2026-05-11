@@ -3,7 +3,7 @@
 Leicester, England, United Kingdom
 
 1. 🌱 I’m currently learning International Business Management and developing skills in global marketing, finance, and business strategy.
-2. 
+
 2.👯 I’m looking to collaborate on business projects, startup ideas, and teamwork opportunities.
 
 3.🤔 I’m looking for help with networking, internships, and improving my business knowledge.
