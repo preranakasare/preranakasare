@@ -1,4 +1,4 @@
-## Hi there I am pereana kasare 👋
+## Hi There, I am Prerana kasare 👋
 🎓 MSc International Business Management Student [ De Montford University ] | Previous Qualification Advanced in Business Administration |Financial Accounting & Auditing | Aspiring International Business Analyst|
 Leicester, England, United Kingdom
 
